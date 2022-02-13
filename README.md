@@ -1,4 +1,4 @@
 
 
-![Stefanos Vichas Cover](cover.gif)
+![Stefanos Vichas Cover](cover2.gif)
 
